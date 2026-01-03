@@ -4,5 +4,5 @@ hi! im autistic im diagnosed w/ depression and anxiety so pls be patient... i al
 
       my 1st language is russian and i also know english very well!!!
 	
-           thats all,,,,,, check my strawpage 4 more ayo         
+           thats all,,,,,, check my strawpage/atabook 4 more ayo         
                        IDK HOW TO USE GITHUB AUGHHH
